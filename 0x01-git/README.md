@@ -1,1 +1,1 @@
-i am amazing
+i'll acheive my goals
